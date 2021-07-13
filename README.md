@@ -1,5 +1,5 @@
 - Chenyu Liu
-- 10 years+ wower(survival hunter+feral druid)
+- coder + wower + fpser + mobaer
 - Lawful evil
 - love technique trends
 - join Ascendex at Jul 6th, 2021
