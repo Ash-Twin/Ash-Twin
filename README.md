@@ -1,5 +1,4 @@
 - Chenyu Liu
-- coder + wower + fpser + mobaer
 - Lawful evil
 - love technique trends
 - join Ascendex at Jul 6th, 2021
