@@ -1,5 +1,5 @@
 > #### _We do not have much connection, you and I._ 
-> 
+> xx
 > #### _Still, this encounter feels special. I hope you won't mind if I think of you as a friend._
 >
 >	#### \[Identify and Explain.\] These are the two tenets of Nomai philosophy; to seek out and to understand is our way of living.
